@@ -1,1 +1,0 @@
-# T-r-k-emberei
